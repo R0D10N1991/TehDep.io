@@ -1,1 +1,1 @@
-# TehDep.ru
+# TehDep.io
